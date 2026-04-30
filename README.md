@@ -66,7 +66,9 @@ Atualmente aprofundando conhecimentos em:
 ## 📫 Contato
 
 📧 Email: [viniciusjoaciranjos@gmail.com](mailto:viniciusjoaciranjos@gmail.com)
+
 🔗 LinkedIn: https://www.linkedin.com/in/vinicius-joacir-dos-anjos-1689a6368/
+
 💻 GitHub: https://github.com/vini20041994
 
 ---
